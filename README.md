@@ -7,3 +7,5 @@ Some people just want to see the world burn
 
  "What we do in life echoes in eternity"
  - Maximus
+
+ "Highly Illogical..."
